@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **neerajpokala143@gmail.com**
 
-- 📄 Know about my experiences [https://ugc.production.linktr.ee/cee1c669-7984-45a7-b5b0-1cc0783c426e_Neeraj-resume-latest--1-.pdf](https://ugc.production.linktr.ee/cee1c669-7984-45a7-b5b0-1cc0783c426e_Neeraj-resume-latest--1-.pdf)
+- 📄 Know about my experiences [[https://ugc.production.linktr.ee/cee1c669-7984-45a7-b5b0-1cc0783c426e_Neeraj-resume-latest--1-.pdf](https://ugc.production.linktr.ee/acae849a-04d1-4346-b95b-408f8bae724f_Neeraj-Resume-Latest.pdf)](https://ugc.production.linktr.ee/acae849a-04d1-4346-b95b-408f8bae724f_Neeraj-Resume-Latest.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
